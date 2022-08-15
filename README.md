@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @Luisflavio123
+- 👋 Hi, I’m @Felistoq
 - 👀 I’m interested in dinheiro 
-- 🌱 I’m currently learning ganhar dinheiro 
-- 💞️ I’m looking to collaborate on ganhar dinheiro 
+- 🌱 I’m currently learning a ganhar dinheiro 
+- 💞️ I’m looking to collaborate on a eu ganhar dinheiro 
 - 📫 How to reach me com dinheiro
 
 <!---
